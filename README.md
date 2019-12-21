@@ -8,7 +8,9 @@
 1.我的GIF类别主要是日本，欧美，有时发视频
 
 2.我的GIF出处在Band更新
+
 [Android下载](https://www.lanzous.com/i2iebza)
+
 苹果在商店搜索Band
 
 实行会员订阅制
@@ -37,8 +39,8 @@
 
 可通过支付宝扫码点单或QQ、微信扫码支付。支付后加QQ2942869624加入Band
 
-支付宝红包 https://github.com/yhfnazi/yhfnazi-gif/blob/master/%E6%94%AF%E4%BB%98%E5%AE%9D%E7%BA%A2%E5%8C%85.jpg
+[支付宝红包](https://github.com/yhfnazi/yhfnazi-gif/blob/master/%E6%94%AF%E4%BB%98%E5%AE%9D%E7%BA%A2%E5%8C%85.jpg)
 
-支付宝扫码点单 https://github.com/yhfnazi/yhfnazi-gif/blob/master/%E6%94%AF%E4%BB%98%E5%AE%9D%E6%89%AB%E7%A0%81%E7%82%B9%E5%8D%95.jpg
+[支付宝扫码点单](https://github.com/yhfnazi/yhfnazi-gif/blob/master/%E6%94%AF%E4%BB%98%E5%AE%9D%E6%89%AB%E7%A0%81%E7%82%B9%E5%8D%95.jpg)
 
-QQ、微信支付 https://github.com/yhfnazi/yhfnazi-gif/blob/master/QQ.%E5%BE%AE%E4%BF%A1%E4%BB%98%E6%AC%BE.png
+[QQ、微信支付](https://github.com/yhfnazi/yhfnazi-gif/blob/master/QQ.%E5%BE%AE%E4%BF%A1%E4%BB%98%E6%AC%BE.png)
