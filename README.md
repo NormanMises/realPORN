@@ -7,7 +7,7 @@
 
 1.我的GIF类别主要是日本，欧美，有时发视频
 
-2.我的GIF出处在Band（安卓下载https://www.lanzous.com/i2iebza 苹果在商店搜索Band）更新
+2.我的GIF出处在Band（[Android下载]（https://www.lanzous.com/i2iebza) 苹果在商店搜索Band）更新
 
 实行会员订阅制
 
