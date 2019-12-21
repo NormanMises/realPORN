@@ -32,7 +32,7 @@
 
 5.购买套餐
 
-可通过支付宝扫码点单或QQ、微信扫码支付。支付后加QQ2942869624或Telegram添加@yhfnazi加入Band
+可通过支付宝扫码点单或QQ、微信扫码支付。支付后加QQ2942869624加入Band
 
 支付宝红包 https://github.com/yhfnazi/yhfnazi-gif/blob/master/%E6%94%AF%E4%BB%98%E5%AE%9D%E7%BA%A2%E5%8C%85.jpg
 
