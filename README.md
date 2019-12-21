@@ -1,8 +1,9 @@
-==自己经营一年多的精品原创GIF车库，隐秘，安全，便捷且不用翻墙，价格实惠==
+自己经营一年多的精品原创GIF车库，隐秘，安全，便捷且不需翻墙，价格实惠
+===
 
 注意！我的车库是是付费订阅！！不是白嫖！！！
-
-欢迎订阅～ ［车库预览］（https://github.com/yhfnazi/yhfnazi-gif/blob/master/%E8%BD%A6%E5%BA%93%E9%A2%84%E8%A7%88.png）
+-----
+欢迎订阅～ 车库预览 <https://github.com/yhfnazi/yhfnazi-gif/blob/master/%E8%BD%A6%E5%BA%93%E9%A2%84%E8%A7%88.png>
 
 1.我的GIF类别主要是日本，欧美，有时发视频
 
