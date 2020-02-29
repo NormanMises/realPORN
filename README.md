@@ -49,4 +49,4 @@
 
 [QQ支付](https://i.qianbao.qq.com/wallet/sqrcode.htm?m=tenpay&f=wallet&a=1&ac=CAEQ4uCJ5QIYmuDo8gU%3D_xxx_sign&u=748843106&n=Norman+%E2%80%A2+Mises)
 
-[微信支付]()
+[微信支付](QQ.微信付款.png)
