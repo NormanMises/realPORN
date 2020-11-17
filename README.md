@@ -1,7 +1,6 @@
-自己经营一年多的精品原创GIF车库，隐秘，安全，便捷且不需翻墙，价格实惠
+精品原创GIF车库，隐秘，安全，便捷且不需vpn
 ===
 
-注意！我的车库是是付费订阅！！不是白嫖！！！
 -----
 欢迎订阅～ [车库预览](https://github.com/yhfnazi/yhfnazi-gif/blob/master/%E8%BD%A6%E5%BA%93%E9%A2%84%E8%A7%88.png)
 
