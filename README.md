@@ -3,21 +3,23 @@ realPORN原创车库
 
 -----
 [车库预览](https://github.com/yhfnazi/yhfnazi-gif/blob/master/%E8%BD%A6%E5%BA%93%E9%A2%84%E8%A7%88.png)
----
+--
+
 * 车库更新内容包括自制GIF出处、网络搜集精品GIF出处、视频、磁力、115转存等资源  
+
 * 能搜到资源的出处只公布出处，特殊资源会另附文件  
 
 * 车库在Band更新
 [Android下载](https://www.lanzous.com/i2iebza)
----
 
 * 苹果在商店搜索Band下载即可
 
 加入方式：会员订阅
----
+--
 
 
-4.具体套餐说明
+具体套餐说明
+--
 
 主车库订阅会员制
 
