@@ -37,8 +37,4 @@ realPORN原创车库
 
 通过支付宝扫码点单或QQ、微信扫码支付后加QQ2942869624加入Band
 
-[支付宝扫码点单](https://qr.alipay.com/00c06698fscpphlf6fb9w34)
-
-[QQ支付](https://i.qianbao.qq.com/wallet/sqrcode.htm?m=tenpay&f=wallet&a=1&ac=CAEQ4uCJ5QIYmuDo8gU%3D_xxx_sign&u=748843106&n=Norman+%E2%80%A2+Mises)
-
 ![支付宝·微信·QQ支付](三合一支付.png)
