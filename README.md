@@ -3,7 +3,7 @@ realPORN原创车库
 
 -----
 [车库预览](https://github.com/yhfnazi/yhfnazi-gif/blob/master/%E8%BD%A6%E5%BA%93%E9%A2%84%E8%A7%88.png)
--
+---
 
 * 车库更新内容包括自制GIF出处、网络搜集精品GIF出处、视频、磁力、115转存等资源  
 
@@ -41,4 +41,4 @@ realPORN原创车库
 
 [QQ支付](https://i.qianbao.qq.com/wallet/sqrcode.htm?m=tenpay&f=wallet&a=1&ac=CAEQ4uCJ5QIYmuDo8gU%3D_xxx_sign&u=748843106&n=Norman+%E2%80%A2+Mises)
 
-![微信支付](QQ.微信付款.png)
+![支付宝·微信·QQ支付](三合一支付.png)
