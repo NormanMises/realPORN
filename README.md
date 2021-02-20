@@ -3,9 +3,9 @@ realPORN原创车库
 
 -----
 
-[车库预览](https://github.com/yhfnazi/yhfnazi-gif/blob/master/%E8%BD%A6%E5%BA%93%E9%A2%84%E8%A7%88.png)
 
 
+* 更多原创GIF 可follow我的[twitter](https://twitter.com/realnazigif)
 
 * 车库更新内容包括自制GIF出处、网络搜集精品GIF出处、视频、磁力、115转存等资源  
 
@@ -15,6 +15,7 @@ realPORN原创车库
 [Android下载](https://www.lanzous.com/i2iebza)
 
 * 苹果在商店搜索Band下载即可
+* [车库预览](https://github.com/yhfnazi/yhfnazi-gif/blob/master/%E8%BD%A6%E5%BA%93%E9%A2%84%E8%A7%88.png)
 
 加入方式：会员订阅
 --
