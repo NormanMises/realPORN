@@ -13,6 +13,7 @@ realPORN原创车库
 
 * 车库在Band更新
 [Android下载](https://www.lanzous.com/i2iebza)
+（推荐从[Google store](https://play.google.com/store/apps/details?id=com.nhn.android.band)中下载最新版）
 
 * 苹果在商店搜索Band下载即可
 
